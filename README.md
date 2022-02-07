@@ -1,0 +1,8 @@
+- Hello my name is necroncommander
+- I want to develop games and stuff and I am in interested in computing and nerdy stuff like that
+- Please stop reading and leave me alone
+- I hope you have a great day
+- They need less emojis for the default welcome message to the profile...
+- This welcome message is for MY profile, MY one
+- Thats right, I support capitalism
+- I will change this later when I am relevant
